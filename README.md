@@ -16,7 +16,7 @@ Two cursed stars are present for Dragons this year, which will affect health and
 
 
 
-# mikay_dragon_2024-prediction
+Dragon_2024-prediction
 
 Mikz
 #### Dragon 
